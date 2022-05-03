@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @UltaGamer760
+- 👋 Hi, I’m @UltraGamer760
 - 👀 I’m interested in making fun game websites
 - comment on my gaming chanel-->https://www.youtube.com/channel/UC2Vs0wotV-Rkgvkxss-KZQw 
 
